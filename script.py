@@ -1,1 +1,0 @@
-Muj prvni skript
